@@ -1,7 +1,7 @@
 # UPDATE-2025-Garena-Free-Fire-Free-Gems-NEW-EDITION
 Garena Free Fire (commonly known as Free Fire) is a popular mobile battle royale game developed and published by Garena. It was initially released on December 4, 2017, and has gained immense popularity worldwide, particularly in regions such as Southeast Asia, Latin America, and India.
 
-Here are some key details about the game:
+Here are some key details about the game: <p><a href="https://allresources.xyz/freefire.html/">Click Here To Get Link</a></p>
 
 Gameplay
 Battle Royale Mode:
